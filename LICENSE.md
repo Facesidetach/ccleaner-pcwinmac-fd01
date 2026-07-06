@@ -1,4 +1,4 @@
-# 
+# Principal CCleaner complementos para Mac OS | Oficial CCleaner complementos para PC Windows. Con limpieza de historial y seguimiento de eventos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
